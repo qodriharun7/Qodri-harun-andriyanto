@@ -1,2 +1,1 @@
-# Qodri-harun-andriyanto
-I am student
+#Qodri-harun-andriyanto
